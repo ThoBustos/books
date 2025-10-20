@@ -1,0 +1,1 @@
+This repo contains all the books I'm reading, organized by author, with notes.
