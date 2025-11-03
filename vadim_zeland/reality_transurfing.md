@@ -45,3 +45,10 @@ Problems are solved by defeating or stopping the pendulum that created them.
 - To solve a problem, rent yourself out.
 - To avoid getting stuck in a suspended state, find your own pendulums.
 **- It is essential to acquire the habit of remembering what you know.**
+
+## Chapter 3. The Wave of Fortune.
+When you have a positive event that leads a serie of positive events, you are on a wave of fortune. "golden lifelines".  When a positive event is followed by a negatives event it is a sign that you are not on your path.
+You don't have to make a huge effort to get a wave of fortune. Just let it in. Don't get distracted by pendulums. Blue bird metaphor. You don't have to catch it but let it eat in your hand. Just don't make it leave.
+**Transmission:** Instead of being manipulated by pendulums, choose ones that benefit you.
+"You shift to a different lifeline according the quality of your thoughts."
+Transmit harmonuous vibrations around you. Do not look for problems instead of solutions.
