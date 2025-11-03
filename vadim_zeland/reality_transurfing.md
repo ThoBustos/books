@@ -25,3 +25,23 @@ In situations, if you react you end up pushing the pendulum higher and higher.
 You'll probably have noticed that if you respond to an anoying situation with irritation, displeasure or other similar emotions, the situation escalates and more things start to go wrong too. This is the pendulum swinging higher and higher. If you react you are the one pushing it higher. It is more effective to act in the opposite manner. Either not reacting at all or reacting in an abnormal way. For example, if when you find yourself in an unpleasant situation you response with false enthusiasm or waky delight the pendulums will be brought to rest. And you will see that the provocation stop with it.
 Earlier we said that the habit of reacting negatively to unpleasant circumstances triggers the pendulum mechanism for capturing thought energy. This habit will fade if you decide to play your own game in which you deliberatly **subsitute negative emotions with positive emotions. Confidence for fear. Ehtusiasm for gloom. Indifference for resentment. Joy for irritation.** Try reacting innapropriatly for small instances. You have nothing to loose. 
 Another method is to think about what the person getting you upset needs. What that person is missing. Health, confidence, peace of mind. **What that person you're finding challenging might really need in that moment.**
+
+Rent yourself. Do not let the problems ahead of you worry/scare/anger you. There is always a straight forward solution of every problem. Do not accept the appearing complexity.
+
+- A pendulum is created by the energy of a group of people thinking in the same way.
+- A pendulum is an energy based information structure.
+- A pendulum maintain the thought energy of the adherent as its own vibrational frequency.
+- A pendulum maintain the thought energy of the adherent as its own vibrational frequency.
+- A harsh battle for adherents take place btw the pendulums.
+- A destructive pendulum forces goals onto its adherents that are not of their own making.
+- A pendulum plays on human emotion, thereby catching the individual in their web.
+- If there is something that you really do not want it will appear in your life.
+- The free oneself from a pendulum means to give it no place in your life.
+- To give something no place in your life does not mean to try and avoid it; it means to ignore it.
+- To give a pendulum to rest you have to change the established game script.
+- Positive visualization will gently bring the swing of a human pendulum to rest.
+- The energy of a stilled pendulum becomes available to you.
+Problems are solved by defeating or stopping the pendulum that created them.
+- To solve a problem, rent yourself out.
+- To avoid getting stuck in a suspended state, find your own pendulums.
+**- It is essential to acquire the habit of remembering what you know.**
