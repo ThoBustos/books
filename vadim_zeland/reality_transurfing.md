@@ -52,3 +52,6 @@ You don't have to make a huge effort to get a wave of fortune. Just let it in. D
 **Transmission:** Instead of being manipulated by pendulums, choose ones that benefit you.
 "You shift to a different lifeline according the quality of your thoughts."
 Transmit harmonuous vibrations around you. Do not look for problems instead of solutions.
+
+## Chapter 4. Balance
+"Excess poential is created by mental energy when too much importance is given to a particular object. 
