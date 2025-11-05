@@ -55,3 +55,5 @@ Transmit harmonuous vibrations around you. Do not look for problems instead of s
 
 ## Chapter 4. Balance
 "Excess poential is created by mental energy when too much importance is given to a particular object. 
+
+The best principle in bringing up children is to behave  towards the child and not only towards children as if they were guests i.e. giving them attention, respect and freedom of choice. Without creating excess potential and without letting them run the show or make your life a misery. The relationship should be constructed on the analogy that you two are no more than guests in this world.
