@@ -59,3 +59,8 @@ Transmit harmonuous vibrations around you. Do not look for problems instead of s
 The best principle in bringing up children is to behave  towards the child and not only towards children as if they were guests i.e. giving them attention, respect and freedom of choice. Without creating excess potential and without letting them run the show or make your life a misery. The relationship should be constructed on the analogy that you two are no more than guests in this world.
 
 Whatever happens in life - never scorn anyone. It is the most dangerous  dangerous form of judgment because you find yourself in the shoes of the person you scorned. Destain or judging others for conditions create unbalance forces which will likely come back. Mothing wrong in general love from one self though. If one feel superior - then unbalance is created. Nature is more perfect that the human mind. The wolf don't feel anything for the sheep.
+Superiority and inferiority always create excess potential. Open expressions of superiority create people to dislike you. Always create excess potential. Balance forces will come in with a slack.
+The analogy of the fly.
+Self development is worthfull though. Benefits you.
+What matters is how you direct your energy. If your goal is to demonstrate X - you will not make progress and it will be harder.
+Most people are unaware of the fact that they have created excess potential and that balance forces exist and so interpret the problem that they face to be the manifestation of some unavoidable dark force. You can remove yourself from the majority of your problems if you relieve yourself of the colossal effort of supporting excess potential.
