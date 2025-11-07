@@ -57,3 +57,5 @@ Transmit harmonuous vibrations around you. Do not look for problems instead of s
 "Excess poential is created by mental energy when too much importance is given to a particular object. 
 
 The best principle in bringing up children is to behave  towards the child and not only towards children as if they were guests i.e. giving them attention, respect and freedom of choice. Without creating excess potential and without letting them run the show or make your life a misery. The relationship should be constructed on the analogy that you two are no more than guests in this world.
+
+Whatever happens in life - never scorn anyone. It is the most dangerous  dangerous form of judgment because you find yourself in the shoes of the person you scorned. Destain or judging others for conditions create unbalance forces which will likely come back. Mothing wrong in general love from one self though. If one feel superior - then unbalance is created. Nature is more perfect that the human mind. The wolf don't feel anything for the sheep.
