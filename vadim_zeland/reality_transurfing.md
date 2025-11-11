@@ -64,3 +64,7 @@ The analogy of the fly.
 Self development is worthfull though. Benefits you.
 What matters is how you direct your energy. If your goal is to demonstrate X - you will not make progress and it will be harder.
 Most people are unaware of the fact that they have created excess potential and that balance forces exist and so interpret the problem that they face to be the manifestation of some unavoidable dark force. You can remove yourself from the majority of your problems if you relieve yourself of the colossal effort of supporting excess potential.
+Majority of experiences are happening by the excess potential of yourself or the people around you. Remove yourself from generating excess potential.
+Let go of any lurking idea that you are able to manipulate the world around you - things will go wrong.
+Your faith is in your hand - but you CHOOSE instead of CHANGING reality.
+Self importance triggers pendulums in one way or the other.
