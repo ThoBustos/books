@@ -68,3 +68,4 @@ Majority of experiences are happening by the excess potential of yourself or the
 Let go of any lurking idea that you are able to manipulate the world around you - things will go wrong.
 Your faith is in your hand - but you CHOOSE instead of CHANGING reality.
 Self importance triggers pendulums in one way or the other.
+The excessiv potential of importance dissipate with action.Do not think, act. If you can not act - do not think about it at all.
