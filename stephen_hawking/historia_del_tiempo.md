@@ -8,3 +8,7 @@ the current goal of physics is to unify those two theories into one theory that 
 the infinity small and gravity.
 Einstein theory of gravity is more accurate than Newton but also way more complex.
 reason why Newton's theory is still widely adopted and used being way simpler. (Mercure position prediction measurement delta)
+
+Key words: Aristotle, Darwin, natural selection, 1 billion of billions (24zeros)
+
+auto-critic: retain more names and concepts/ideas. many names and stories have been mentioned that could be added.
