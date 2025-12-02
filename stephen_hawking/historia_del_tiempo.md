@@ -14,5 +14,3 @@ Key words: Aristotle, Darwin, natural selection, 1 billion of billions (24zeros)
 auto-critic: retain more names and concepts/ideas. many names and stories have been mentioned that could be added.
 
 chapter 1: read/review understanding/connections and memory
-
-chapter 2:
