@@ -15,3 +15,5 @@ auto-critic: retain more names and concepts/ideas. many names and stories have b
 
 chapter 1: read/review understanding/connections and memory
 chapter 2: 
+
+?
