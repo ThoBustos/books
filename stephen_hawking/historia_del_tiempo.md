@@ -30,3 +30,5 @@ both Aristotle and Newton believed in absolute time. danish Ile Christensen Roem
 becUse both earth and jupyter are turning around the sun their distance changes. his measurements were off (225k kilometers per second vs 300k real number). he discovered this 11 years before principia mathematica was published by newton which makes it even more impressive.
 a real theory of propagation of light did not appeared before 1865 by the british James Clerk Maxwell. the chapter then talks about waves and micro waves.
 was a good grasp of core ideas. i can improve on retaining more informations by connecting names and existing knowledge. keeping the sewuence of thoughts with max accuracy and details.
+
+chapter 2 - part 2:
