@@ -32,3 +32,4 @@ a real theory of propagation of light did not appeared before 1865 by the britis
 was a good grasp of core ideas. i can improve on retaining more informations by connecting names and existing knowledge. keeping the sewuence of thoughts with max accuracy and details.
 
 chapter 2 - part 2:
+
