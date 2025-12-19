@@ -33,3 +33,5 @@ was a good grasp of core ideas. i can improve on retaining more informations by 
 
 chapter 2 - part 2:
 
+.
+
