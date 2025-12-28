@@ -32,5 +32,16 @@ a real theory of propagation of light did not appeared before 1865 by the britis
 was a good grasp of core ideas. i can improve on retaining more informations by connecting names and existing knowledge. keeping the sewuence of thoughts with max accuracy and details.
 
 chapter 2 - part 2:
-.
+alto nivel las secciones son conceptos relacionados con espacio-tiempo, conceptos de pasado/presente/future desde un objeto con eje de tiempo/espacio.
+i learned that the light has a speed of 1 meter per ~0,000000003s. that light is impacted by gravity. the bogger the masses the more influence it has on light.
+the twin theory that if a twin lives near the sea and the other in the montain, the brother who lives near the sea will br older that the other brother (slightly). 
+but this diff can be augmented if the other brother go to space. we also learned that "un suceso" is something that happens in a specific place in soace and specific moment in tkme. we can identify the exact space with four numbers or coordinates.
+concept spce/time is key. the "geodesicas" are the lines that connect directly from point A to B around the earth. it is accepted that similarly light uses similar way of moving.
+it seemed that one of the point was that light isnt necessarly straight, it oscilates impacted with other masses.
+this chapter seemed to be the foundations of principles in history that led Stphen Hawking and Roger Peurose to develop on the idea that the universe is not absolute/fixed but dynamic.
+and that it has a beginning and possibly an end.
+Names mentioned: Pointcarré, Einstein, Newton, Roger Peurose (Stephen Hawking partner)
 
+auto-critic: missing dates, transitions from ideas, mental timeline of events, missed Maxwell and Michelson.
+
+chapter 3 - the universe in expansion
