@@ -45,3 +45,17 @@ Names mentioned: Pointcarré, Einstein, Newton, Roger Peurose (Stephen Hawking p
 auto-critic: missing dates, transitions from ideas, mental timeline of events, missed Maxwell and Michelson.
 
 chapter 3 - the universe in expansion
+read 1
+A few important names mentioned in this chapter and dates.
+remember 1978. hard to keep the names. Friedmann was one of them.
+the core idea is very interesting. it shows us how we had early hints that the universe was not static. and that even Einsten had a variable for the universe being static (it has a name).
+In reality and theough different measurements through the understanding of the lightjess of stars and planets we can understand if they are getting closer or further away from us.
+thats the Doppler effect. but instead of sounds like we know it its a spectrum of light and waves that tells us.
+Friedmann has three options for the universe expensio . big crunch which is like bog bang but reversed, continuous expansion or continuous expansion but converging towards 0 without never resching it. always growing.
+the author explains thay even if good for science fiction the crunch theory doesnt really make sense.
+they've calculated how much shiuld the unvierse avg density or mass to see the crunch theory happening. and we're not even 1/10 courning all the visible stars/planets including black holes.
+the author reminds that we cant discard so entities that we cant see and wiuld change that number.
+auto-critic: lets improve name and date retention to better articulate story in my head.
+how?
+
+read 2
