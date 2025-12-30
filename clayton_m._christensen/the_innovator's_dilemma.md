@@ -30,6 +30,9 @@ Successful companies face a dilemma: the very processes and values that made the
 
 Create or acquire smaller organizations that can get excited about small wins and new markets. Match the size of the organization to the size of the market opportunity.
 
+
+read 1
+
 # Introduction
 Few companies are referenced in the examples (Sears, Digital, Xerox, Apple, IBM)
 
@@ -46,3 +49,22 @@ makes me think of adam smith and the value of money and labor. also resonate wit
 
 auto-critic: in that brief reflection, connect to quotes, stories, examples, possible writings. Expand your neural network of knowledge to make it easier to create connections. Also be more specific with names, dates and lists of concepts.
 
+
+read 2
+what I understood:
+the important lessons are that companies need to be mindful of their internal processes, understand when disruption can arrive and allocating ressources and structure/ops to embrace new technologies and markets with the right setup and mindset to win. Not overoptimizing what's working and taking bigger bets with calculated risks in sectors that are early, without historical data and usually in niche without clear ROI or playbook on how to do it.
+
+there are 5 concepts important to remember in this intro:
+- companies needs customers or investors for ressources
+- small markets don't solve growth needs of large companies
+- market that don't exist can't be analyzed
+- an org capabilities define it's disabilities
+- technology supply may not equal market demand
+
+"It is in disruptive innovations, where we know least about the market, that there are such strong first-mover advantages. This is the innovertor's dilemma."
+
+
+personal reflection: it reinforces the first principle thinking. Deeply understanding everyone's incentives and goals really help to forsee where emerging technologies and markets can grow. It requires a deep enough technological understanding of the SOTA of latest technlogies as well as a deep understanding of the market and the needs of the customers. The it is clear that even with this vision, it's not enough. To properly execute and align the strategy of the company to be successful at these there are pitfalls that are counter intuitive like the actual capabilities of the company to execute on something new, the lower margins of ROI a big company might need as well as the mindset of inferring solutions for something new with no historical data to analyze. This is interesting because it gives first principles to create strategies that are disruption-proof (if executed well). And that this execution is the hard part but planning accordingly and with the proper training/setup the company have a right to play.
+
+
+auto-critic: did not connect well the 5 concepts to easily retrieve. Got the major ideas but lacked depth in retrieving to best articulate core principles. the pitfalls are clear - could reflect on how to avoir or specific strategies to attack this issues in real world situations.
