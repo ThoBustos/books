@@ -59,3 +59,12 @@ auto-critic: lets improve name and date retention to better articulate story in 
 how?
 
 read 2
+the next part of this chaptee shows key actors in demonstrating that a singularity (big bang) is at the start of our universe with a plot twist.
+stephen Hawking in 1970 demonstrated that if the general theory of relativity by einstien is correct there is a big bang, and this idea got a lot of push back.
+but he also mentions that this is also the same idea that he is now fighring inteoducing quantim physics. mergong the infinitly big and small into one unified theory of gravity.
+Friedmann's theory arr important as well as two russian physicists (Klishit something and Kalknikov - trying to remember more names here). 
+in 1963 Penrose publish a study that explains that for stars when the gravitation is infinite and the volume goes to 0 this is where a singularity happens (black hole/big bang).
+and that its also the start lf time. This is where hawking applied this not to stars but our universe and conclude that ig se revert our galaxy in expansion it retracts which comes back to a singularity described by penrose.
+thats how they co-publish in 1970 this theory that got hard reception especially fron the russians (marxism + some general thing they disqgree about)
+we also learned more about Hawking's desease and his pursuit of the doctorate just to get married (had supposedly not luch more to live). closes the chapter reminding us how throuvh this thousands of yezrs we've evolved our understanding of the universe, with the major ideas that supports it and introducing the current SOTA of the field and interest of the author.
+auto-critic: better job with names and date. moving slower and focusong on underdtanding the ideas is rewarding and helps connecting the concepts. missed some nales that were more difficult. let's consule more, improve retrieval capacity and connectors to rhen abstract again on why it's importznt and to what it connects
