@@ -68,3 +68,24 @@ and that its also the start lf time. This is where hawking applied this not to s
 thats how they co-publish in 1970 this theory that got hard reception especially fron the russians (marxism + some general thing they disqgree about)
 we also learned more about Hawking's desease and his pursuit of the doctorate just to get married (had supposedly not luch more to live). closes the chapter reminding us how throuvh this thousands of yezrs we've evolved our understanding of the universe, with the major ideas that supports it and introducing the current SOTA of the field and interest of the author.
 auto-critic: better job with names and date. moving slower and focusong on underdtanding the ideas is rewarding and helps connecting the concepts. missed some nales that were more difficult. let's consule more, improve retrieval capacity and connectors to rhen abstract again on why it's importznt and to what it connects
+
+read 3
+finished the prev chapter and in new one.
+what we understood from previous chapter is that Einstein theory is "classic". it applies well to the huge but does not work for the infinitly small.
+that is why weve seen a shift from mechanics to quantum mechanics. where we have to add unpredictability into the concepts. As an experiment showed, the position and the speed of atoms cant allow exact position and exact soeed at the same time.
+the heinsenberg principle: the more precisely you know the position of an atom, the less precisely you cant know its momentum (speed x direction) which foes not apply for classical physics.
+we learned that artistotles was using the earth, water, air and fire as fundation of the universe. where earth and water (gravity) and air + fire tends to go upward, expand. not sink.
+then from Aristotles Stephen Hawking takes us through time and the conception of atoms.
+there has been a debate that universe is composed of atoms forever (invisibile in greek).
+only very recently the concept of atom have become tangible (early XXth centry - 1902 maybe).
+where we were able to ibserve atoms. then we learned about electrons/protons/neutrons. it has been proven that there is an infinite small.
+from my understanding you have protons/electrons/beutrons that are subatomics particles. protons and neutrons are made of quarks ("some of the deepest building blocks of matter").
+the you have atoms that are composed of sub atomics particles.
+then you have molecules that are composed of two or more atoms.
+the quarks have 6 flavors and 3 colors (green, red, blue - not real colors - but labels for the type of charge)
+and the flavors are up down strange charm bottom top.
+we also learned the the exlusion orinciple of pauli that says fhat 2 similar particles cant exist in the similar state. (1925 and nobel prize 1945)
+then we learned about the espin, which is th axis to understand looking from different angles if an atom changes 360degrees or 180 degrees.
+we have 0,1,2 and 1/2. 1/2 seems special.
+saw that in english its weitten spin*.
+just red fhat the oauli principle only impact to fermions.
