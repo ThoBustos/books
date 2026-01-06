@@ -89,3 +89,5 @@ then we learned about the espin, which is th axis to understand looking from dif
 we have 0,1,2 and 1/2. 1/2 seems special.
 saw that in english its weitten spin*.
 just red fhat the oauli principle only impact to fermions.
+
+something.
