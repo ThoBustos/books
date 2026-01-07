@@ -90,4 +90,12 @@ we have 0,1,2 and 1/2. 1/2 seems special.
 saw that in english its weitten spin*.
 just red fhat the oauli principle only impact to fermions.
 
-something.
+read 4
+few pages but jey concepts.
+here is what i understand. spanish. hay particulas portadoras. que tienen un espin entero (tmb llamado xxxx).
+esas particulas ejercen fuerzas. mientras mas grande la masa, mas corto el alcance.
+a esas no es aplica la ley de exclusion de Wolfgang Pauli (donde dos fusio slmething - no pueden tener la misma posicion cuantica - o misma posicion/velocidad?)
+el espin es una propiedad.
+"dos particulas fermiones no pueden estar en el mismo estado cuantico"
+existen cuatro tipos de fuerzas. fuertes, debiles, electro magnetica y gravedad. 4 categorias de particulas portadoras de fuerza.
+luego esta el concepto de particula real vs virtuales.
