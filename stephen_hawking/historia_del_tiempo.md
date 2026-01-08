@@ -99,3 +99,6 @@ el espin es una propiedad.
 "dos particulas fermiones no pueden estar en el mismo estado cuantico"
 existen cuatro tipos de fuerzas. fuertes, debiles, electro magnetica y gravedad. 4 categorias de particulas portadoras de fuerza.
 luego esta el concepto de particula real vs virtuales.
+
+read 5
+.
