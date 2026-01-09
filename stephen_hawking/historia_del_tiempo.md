@@ -101,4 +101,3 @@ existen cuatro tipos de fuerzas. fuertes, debiles, electro magnetica y gravedad.
 luego esta el concepto de particula real vs virtuales.
 
 read 5
-.
