@@ -28,4 +28,3 @@ summary:
 three signs you're having wrong conversation (emotions escalate, walk away skeptical, deja vu dialogue)
 thre skills to identify topic and prepare to keep focused on it: unbundle (CPR), choose, simplify.
 be both focused and flexible.
-
